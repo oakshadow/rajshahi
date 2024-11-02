@@ -1,1 +1,1 @@
-# rajshahi
+# rajshahi university
